@@ -1,2 +1,11 @@
 # seminar_test
-test
+te
+
+hello!~~~
+
+
+dfsdf
+
+sdfdsf
+
+sdfs
